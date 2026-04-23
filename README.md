@@ -1,5 +1,3 @@
-# About Me:
-I’m currently working on AIML projects<br>I’m looking to collaborate on AIML projects <br> I’m looking for AIML and Web development <br> I’m currently learning in UG 3rd yr CSE in B.tech<br>
 
 
 ## Socials:
